@@ -1,0 +1,25 @@
+{
+  "titulo": "Enquanto Houver Jardim",
+  "capitulos": 6,
+  "palavras_da_narrativa": 8169,
+  "minutos_a_235_palavras_por_minuto": 34.8,
+  "faixa_a_200_250_palavras_por_minuto": [
+    32.7,
+    40.8
+  ],
+  "paginas_pdf": 44,
+  "aberturas_pdf_paginas_fisicas": [
+    4,
+    10,
+    16,
+    22,
+    29,
+    37
+  ],
+  "epub_zip_xml_links_paragrafos": "PASSOU",
+  "pdf_todos_paragrafos_presentes": "PASSOU",
+  "epubcheck": "NAO EXECUTADO",
+  "kindle_previewer": "NAO EXECUTADO",
+  "autoria": "Nao informada; omitida",
+  "backup_publico": "PENDENTE: GitHub CLI informa credencial invalida"
+}

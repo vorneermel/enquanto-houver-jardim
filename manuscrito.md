@@ -310,11 +310,9 @@ Lurdes não comentou o sorriso que encontrou no rosto dele.
 
 ## Capítulo 3 — O nome do que crescia
 
-Helena fez trinta e um planos para esquecer que estava apaixonada. Nenhum deles durou até a manhã seguinte.
+Helena fez muitos planos para esquecer que estava apaixonada. Nenhum deles durou até a manhã seguinte.
 
 Podia trabalhar em outra casa. Podia pedir transferência à agência. Podia reduzir as conversas ao necessário e deixar de levar para o apartamento a lembrança de um sorriso. Repetia essas possibilidades à noite, enquanto lavava a própria xícara na pia pequena, mas às sete da manhã voltava a prender o cabelo e procurar a previsão do tempo para saber se poderiam sair ao jardim.
-
-Continuava com trinta anos. Os trinta e um planos eram apenas uma conta que fizera, num domingo, para rir da própria falta de juízo.
 
 Augusto não era fácil. Tinha orgulho, impaciência e uma tendência irritante a dizer que estava bem quando a expressão mostrava o contrário. Também guardava o nome do filho de cada funcionário que visitava a casa. Ouvia uma história até o fim. Percebia quando ela chegava mais calada e perguntava se queria conversar, aceitando quando a resposta era não.
 
@@ -623,3 +621,395 @@ Ela se voltou.
 — Meu marido.
 
 Deitou perto dele com cuidado, acomodando-se como haviam aprendido. Augusto pousou a mão sobre seu braço. Não falaram da doença, dos documentos ou do dia seguinte. Helena beijou o lugar onde a aliança tocava sua pele e ficou ouvindo a respiração dele até adormecer.
+
+## Capítulo 5 — Fica mais um pouco
+
+Nas primeiras manhãs de casados, Helena acordava antes do despertador e estendia a mão até encontrar Augusto.
+
+Às vezes ele já estava acordado.
+
+— Está conferindo? — perguntava.
+
+— Estou.
+
+— Continuo aqui.
+
+Ela se aproximava e beijava seu ombro, ainda sonolenta. Havia uma intimidade nova em dividir coisas pequenas: a preferência por uma janela entreaberta, o lugar dos chinelos, a toalha que ela sempre esquecia sobre uma cadeira. Augusto dizia que precisava elaborar um regulamento conjugal. Helena avisava que recorreria de todas as multas.
+
+Mudou-se de vez no começo de agosto. Trouxe roupas, livros, duas fotografias da mãe e uma panela de que não queria se desfazer. Não levou tudo de uma vez. Gostava de chegar com uma sacola, encontrar lugar para um objeto e perceber a casa recebendo aos poucos as marcas de sua presença.
+
+Sobre a escrivaninha de Augusto apareceu o caderno verde. No banheiro, um frasco de perfume. Na cozinha, a caneca lascada que ela usava desde a faculdade.
+
+— Com tantas xícaras, você trouxe essa? — ele perguntou.
+
+— Ela sabe muita coisa sobre mim.
+
+— Então trate bem essa caneca. Pode ser útil numa negociação.
+
+O riso ainda existia. Helena faria questão de lembrar disso depois: não tinham passado todas as horas esperando a morte.
+
+Havia tardes em que Mauro vinha e Augusto se animava discutindo um problema da empresa. Havia jantares bons, visitas curtas, beijos roubados quando Lurdes virava de costas de propósito. Um dia, a mãe de Helena telefonou e chamou Augusto de genro pela primeira vez. Ele ficou emocionado e disfarçou perguntando sobre o tempo no interior.
+
+Mas o corpo pedia cada vez mais.
+
+A mão direita já não sustentava o peso da xícara. Depois a esquerda também passou a falhar em alguns momentos. Helena aproximava o café quando ele pedia, observando as orientações da equipe e o cansaço que fazia certos dias mais difíceis. Nunca fingia que ele não percebera a mudança.
+
+— Hoje está ruim — Augusto dizia.
+
+— Está. Vamos devagar.
+
+À noite, ele precisava de ajuda para mudar de posição, e os profissionais se revezavam para assegurar o cuidado. Helena permanecia esposa: fazia carinho, conversava, dormia quando conseguia. Aprendeu, às vezes contra a própria vontade, que descansar também era necessário para continuar ao lado dele.
+
+Numa madrugada, Augusto a encontrou chorando sentada na beira da cama.
+
+— Helena.
+
+Ela enxugou o rosto depressa.
+
+— Desculpa. Te acordei?
+
+— Vem aqui.
+
+Ela se deitou perto, cuidando para acomodá-lo bem.
+
+— Não precisa pedir desculpa por isso — ele disse.
+
+Helena escondeu o rosto no travesseiro.
+
+— Eu fico pensando em coisas horríveis. Depois fico com raiva de mim, porque você está aqui e eu já estou com saudade.
+
+Augusto passou os dedos pelo cabelo dela. O gesto era pequeno, mas lhe exigia concentração.
+
+— Eu também sinto saudade de coisas que ainda estão acontecendo.
+
+Ela levantou o rosto.
+
+— Do quê?
+
+— De você entrando no quarto. Às vezes fico olhando e pensando que queria guardar exatamente aquilo.
+
+Helena chorou mais, sem tentar se esconder. Augusto a deixou chorar. Não pediu coragem, não exigiu uma promessa de felicidade futura. Ficaram abraçados do modo possível até o quarto começar a clarear.
+
+Na manhã seguinte, ela cancelou um compromisso, ele adiou uma reunião, e os dois ouviram a chuva.
+
+Em meados de agosto, houve um dia de sol. Augusto se sentiu disposto o suficiente para ir ao jardim, acompanhado conforme os cuidados necessários. Helena levou as duas xícaras e deixou a tesoura de poda na mesa.
+
+As camélias estavam abertas. Algumas flores já tinham caído, inteiras, sobre a terra escura.
+
+— Quero uma fotografia — ele disse.
+
+Helena pegou o telefone.
+
+— De você?
+
+— Da gente.
+
+Lurdes veio da cozinha e segurou o aparelho longe demais do rosto, apertando o botão errado duas vezes. Augusto reclamou que a fotógrafa estava cobrando caro. Helena riu e se inclinou para ele.
+
+Foi nesse momento que Lurdes acertou.
+
+Na fotografia, Helena estava de olhos quase fechados, rindo. Augusto olhava para ela. Não para a câmera, nem para as flores: para ela.
+
+Mais tarde, quando viu a imagem, Helena disse que podiam tirar outra, mais arrumados.
+
+— Essa está certa — ele respondeu.
+
+Guardaram a fotografia sem saber que seria a última dos dois no jardim.
+
+Na segunda-feira seguinte, Helena preparou o café. Augusto estava na sala, já acomodado na cadeira, enquanto a cuidadora organizava o início da manhã. Ele parecia mais cansado, mas quis ouvir sobre uma prova que ela faria na quinta-feira.
+
+— Não vai desistir por minha causa — disse.
+
+— Não comecei por sua causa para desistir agora.
+
+Ele sorriu. Helena levou a xícara até a mesinha e se abaixou para beijá-lo.
+
+— Hoje está cheiroso — Augusto murmurou.
+
+— O café?
+
+— Você.
+
+Ela riu. Estava prestes a responder quando percebeu a mudança no rosto dele.
+
+O sorriso desapareceu. Augusto tentou dizer seu nome, mas a voz não veio inteira. A cabeça tombou, e seus olhos perderam o foco.
+
+— Augusto?
+
+Helena pousou a xícara tão depressa que o café se espalhou pelo pires. Chamou a profissional, que já se aproximava, e acionaram o serviço de emergência. A cuidadora tomou as providências imediatas enquanto Helena informava o endereço com uma clareza que não sentia.
+
+O jardim continuava visível pela porta aberta.
+
+Essa foi a coisa que depois mais a espantou: enquanto sua vida se partia, as folhas continuavam se movendo normalmente ao vento.
+
+Augusto recuperou a consciência antes de sair, mas estava muito debilitado. Procurou Helena com os olhos, e ela se colocou ao lado dele.
+
+— Estou aqui. Vou com você.
+
+Ele tentou apertar seus dedos.
+
+No hospital, as portas se fecharam por algum tempo. Helena ficou do lado de fora, as mãos manchadas de café. Só percebeu quando Mauro chegou e lhe ofereceu um lenço.
+
+— A Lurdes me ligou — ele explicou.
+
+Helena assentiu, sem conseguir formar uma frase. O telefone vibrava com mensagens. Sua mãe queria saber se devia viajar. A irmã perguntava o nome do hospital. Ela respondeu a todos com poucas palavras e voltou a olhar para a porta.
+
+Quando finalmente pôde entrar, Augusto estava cercado de equipamentos e de uma quietude que não conhecia nele. A equipe explicou que o episódio era grave e que a doença havia avançado. Os tratamentos seriam acompanhados de perto, com atenção também ao conforto. Não havia segurança de que ele pudesse voltar para casa.
+
+Helena fez perguntas. Pediu que repetissem uma informação. Ouviu outra vez. Queria compreender, mesmo que compreender doesse mais do que esperar sem saber.
+
+Depois sentou ao lado da cama.
+
+— Oi, meu amor.
+
+Augusto abriu os olhos lentamente.
+
+— Você veio.
+
+Ela segurou a mão dele, tomando cuidado com os acessos.
+
+— Eu disse que vinha.
+
+Ele olhou para o teto por um instante. Quando voltou a procurá-la, havia uma pergunta em seu rosto.
+
+Helena não mentiu.
+
+— Está difícil. Estão cuidando de você.
+
+Augusto fechou os olhos e uma lágrima escorreu em direção à têmpora. Ela a enxugou com o polegar.
+
+— Eu queria mais — ele sussurrou.
+
+Helena aproximou a cadeira.
+
+— Eu também.
+
+Ele não tinha forças para um discurso. Ela já conhecia tantas palavras suas que não precisavam de muitas. Contou sobre a casa, sobre Lurdes ter colocado as duas xícaras de molho, sobre uma flor branca que se abrira na manhã anterior. Falou devagar, para que ele pudesse acompanhá-la sem esforço.
+
+Augusto escutava de olhos fechados. Quando ela parou, moveu os dedos.
+
+— Continua.
+
+Helena continuou.
+
+Contou como comprara a muda de alecrim antes de admitir que o amava. Confessou que verificava o telefone toda noite esperando uma mensagem. Lembrou o beijo durante a tempestade, a expressão de Mauro no casamento, o modo solene como Augusto dissera minha mulher no quarto.
+
+Ele esboçou um sorriso.
+
+— Minha mulher.
+
+— Sempre vou ter sido — ela respondeu, encostando os lábios em sua mão.
+
+Ficou com ele durante toda a tarde. Em alguns momentos Augusto dormia; em outros, despertava inquieto e se acalmava quando a encontrava. A equipe entrava, avaliava, cuidava. Helena saía quando necessário e voltava assim que podia.
+
+No começo da noite, Mauro entrou por alguns minutos. Augusto o reconheceu e tentou perguntar da empresa.
+
+— Está tudo em ordem — o amigo disse. — Pode descansar.
+
+Não era uma frase de administrador. Era a voz de quem lembrava o primeiro galpão, os almoços baratos, a juventude que os dois não haviam percebido passar.
+
+Mauro segurou o ombro dele e saiu antes que o choro impedisse qualquer despedida.
+
+Helena voltou a se sentar. Pela janela alta do quarto, restava uma faixa de céu.
+
+— Está escurecendo — Augusto disse.
+
+— Está.
+
+— No jardim também?
+
+Ela respirou fundo.
+
+— Também. A luz da varanda acende daqui a pouco.
+
+Ele ficou quieto. Helena pensou que tivesse adormecido, mas ouviu:
+
+— Fica mais um pouco.
+
+Ela se inclinou e beijou sua testa. A pele estava morna. Era a testa de seu marido, o lugar que beijara tantas vezes ao passar pela sala, e aquela familiaridade quase a fez desabar.
+
+— Eu fico, Augusto.
+
+Os dedos dele se moveram dentro dos dela.
+
+— Eu fui feliz.
+
+Helena encostou o rosto na mão que segurava.
+
+— Eu sei, meu amor. Eu também fui. Eu sou sua mulher. Estou aqui.
+
+Ele a olhou uma última vez com os olhos inteiramente abertos. Helena reconheceu aquele olhar: era o da fotografia, o do jardim, o de um homem prestando atenção nela.
+
+Depois o cansaço o levou para uma quietude mais funda.
+
+Ela continuou ao lado dele enquanto a equipe acompanhava seus últimos momentos e cuidava para aliviar o sofrimento. Falou seu nome sem pressa, repetiu que o amava, manteve a mão onde ele pudesse sentir.
+
+Augusto morreu naquela noite.
+
+Helena ouviu as palavras do médico, mas precisou que o mundo ficasse parado por alguns segundos. Ainda segurava a mão do marido. Ainda esperava, em algum lugar impossível de si mesma, o pequeno movimento com que ele costumava responder.
+
+Quando compreendeu que aquele movimento não viria, abaixou a cabeça sobre a cama e chorou sem conseguir dizer mais nada.
+
+Na casa, o café da manhã permanecia sobre a mesa.
+
+## Capítulo 6 — A xícara do outro lado
+
+Helena voltou para casa dois dias depois, depois da despedida e do sepultamento.
+
+A mãe ficou com ela. Lurdes abriu a porta e as três se abraçaram no corredor, sem aquela pressa de interromper o choro que as pessoas às vezes confundem com consolo.
+
+O casaco de Augusto estava no cabide.
+
+Helena o viu antes de qualquer outra coisa. Aproximou-se e pousou a mão na manga, como se ele o tivesse deixado ali para buscar mais tarde. O tecido conservava um pouco de seu cheiro. Ela encostou o rosto e fechou os olhos.
+
+Ninguém tentou retirá-lo.
+
+Nos primeiros dias, a falta tinha formas concretas. Era o horário do remédio que chegava sem remédio para oferecer. A passagem livre entre os móveis. O telefone sobre a mesa sem uma mensagem pedindo que ela avisasse quando chegasse.
+
+Helena despertava de madrugada e estendia a mão. Encontrava o lençol liso. Às vezes, por um segundo, pensava que ele estava no banheiro. Depois lembrava de que nem isso fazia sozinho havia muito tempo, e a lembrança inteira retornava.
+
+A mãe dormia no quarto de hóspedes. De manhã, preparava alguma coisa simples e esperava que a filha conseguisse comer. Não dizia que tudo passaria. Tinha vivido perdas suficientes para saber que certas frases servem mais a quem fala do que a quem escuta.
+
+No quarto dia, Lurdes encontrou Helena diante do armário das xícaras.
+
+— Pode deixar que eu faço — ofereceu.
+
+Helena balançou a cabeça.
+
+— Quero tentar.
+
+Moeu o café. A água esquentou, o aroma tomou a cozinha, e o gesto conhecido abriu uma dor tão exata que ela precisou apoiar as mãos na bancada.
+
+Lurdes ficou perto.
+
+— Eu fazia o dele primeiro — Helena disse.
+
+— Eu sei.
+
+— Sabia o ponto em que ele gostava. Nem precisava perguntar.
+
+O café passou lentamente. Helena pegou duas xícaras por hábito. Quando percebeu, já estavam lado a lado.
+
+Olhou para a segunda durante muito tempo.
+
+Depois chamou a mãe.
+
+As três tomaram café na cozinha. Helena quase não bebeu o seu, mas conseguiu permanecer sentada até que as outras terminassem.
+
+Mauro veio na semana seguinte. Trazia documentos que precisariam ser tratados no devido tempo, mas não abriu a pasta. Perguntou se podia ver o jardim.
+
+Sentaram na varanda. O lugar da cadeira de Augusto parecia visível mesmo vazio.
+
+— Ele falava muito de você — Mauro disse.
+
+Helena torceu a aliança no dedo.
+
+— Falava?
+
+— Disfarçava no começo. Perguntava se eu achava que a empresa devia apoiar a volta de funcionários aos estudos. Depois dizia que você tinha uma opinião interessante sobre alguma coisa. Até que um dia desistiu de fingir e passou meia reunião me mostrando uma fotografia de uma muda de alecrim.
+
+Helena riu. O riso veio junto das lágrimas e a surpreendeu tanto que levou a mão à boca.
+
+Mauro sorriu também, com os olhos molhados.
+
+— Ele voltou a fazer planos.
+
+Ela olhou para o canteiro.
+
+— Eu achei que, se cuidasse direito... — começou, e não terminou.
+
+Mauro ficou em silêncio, deixando que encontrasse as palavras.
+
+— Eu sabia. Sabia desde o início. Mas uma parte minha achava que, se eu estivesse sempre perto, se não esquecesse nada, se fizesse tudo certo, talvez tivesse mais tempo.
+
+O amigo respirou fundo.
+
+— Você esteve perto. Ele sabia disso.
+
+Helena chorou com o rosto nas mãos. Mauro permaneceu na varanda até que ela pudesse levantar a cabeça. Antes de ir embora, combinou de voltar com a orientação profissional necessária para cuidar dos assuntos pendentes, no ritmo que fosse possível.
+
+Não havia nada de romântico na burocracia do luto. Havia nomes para assinar, ligações para atender, objetos que alguém perguntava se podiam ser recolhidos. Helena atravessou tudo com ajuda. O que Augusto organizara em vida tornou algumas decisões menos difíceis, mas nenhuma assinatura alcançava o lugar onde sentia falta dele.
+
+Passou uma semana sem entrar no escritório.
+
+Quando entrou, encontrou o caderno verde sobre a mesa e a caneta alinhada ao lado. Na parede, uma fotografia dos pais dele. Perto do computador, já emoldurada por Lurdes, estava a fotografia do jardim.
+
+Helena a pegou com as duas mãos.
+
+Augusto olhava para ela.
+
+Sentou na cadeira de visitas, a mesma que usara no primeiro dia, e chorou olhando aquele homem que a fotografia conservara atento, vivo, apaixonado. Lembrou que quisera repetir a imagem porque não estava arrumada. Quis abraçar a mulher que tinha sido naquele instante e pedir que não desperdiçasse nem um segundo corrigindo o próprio cabelo.
+
+Sobre a mesa havia uma pasta com anotações domésticas. Entre uma conta e outra, encontrou uma lista de Augusto, escrita antes que a mão começasse a falhar tanto.
+
+O nome dela aparecia no alto.
+
+Não era uma carta de despedida. Era uma lista pequena: perguntar sobre a prova; ligar para a mãe dela no aniversário; ver cadeira melhor para estudar; comprar café.
+
+Helena leu cada linha. Reconheceu a maneira como ele fazia o traço do t, a letra que diminuía no fim da página. Aquilo a atingiu mais do que qualquer discurso que pudesse ter deixado. Augusto estivera pensando no futuro comum, no conforto dela, numa ligação que não chegaria a fazer.
+
+Ela guardou a folha dentro do caderno verde.
+
+Naquela noite, telefonou para a mãe antes que ela ligasse.
+
+— Eu comi — disse, quando ouviu sua voz.
+
+A mãe demorou a responder.
+
+— Que bom, minha filha.
+
+Setembro chegou sem pedir licença. Algumas flores terminaram seu tempo, outras começaram a se preparar. O jardim precisava de água, limpeza, poda. Helena ficava indignada com aquela exigência da vida: coisas continuavam precisando dela quando mal conseguia precisar de si mesma.
+
+Numa manhã, encontrou o alecrim ressecado no vaso.
+
+Era a muda que comprara na feira, quando ainda chamava o amor de preocupação profissional. Pegou o vaso, levou-o até a torneira e molhou a terra devagar. Havia ramos secos, mas no centro persistiam folhas verdes.
+
+Não fez daquela planta uma lição. Algumas coisas morriam mesmo quando recebiam água. Ela agora sabia disso com uma certeza dolorosa.
+
+Ainda assim, retirou os galhos secos e encontrou para o vaso um lugar com mais luz.
+
+Voltou às aulas aos poucos. Na primeira noite, ficou dez minutos dentro do carro antes de conseguir entrar. Uma colega guardara os materiais para ela. O professor não fez perguntas diante da turma. Helena sentou, abriu o caderno e encontrou a folha de Augusto entre as páginas.
+
+Perguntar sobre a prova.
+
+Passou a ponta do dedo sobre as palavras. Depois pegou a caneta.
+
+Houve dias em que não conseguiu. Faltou, pediu prazo, procurou apoio para atravessar o luto. Houve uma tarde inteira em que só chorou porque encontrou um biscoito de que ele gostava. A saudade não obedecia ao esforço e não diminuía numa linha reta.
+
+Mas houve também uma pergunta que respondeu em aula. Um almoço com a irmã. Um pequeno erro de Lurdes que as fez rir na cozinha, seguido por um silêncio em que todas sentiram a ausência dele sem precisar explicá-la.
+
+Helena continuou usando a aliança. Não fez promessa alguma sobre o resto da vida. Ainda era cedo até para imaginar o mês seguinte.
+
+No fim de uma tarde, levou a própria xícara para o jardim. Sentou no banco onde estivera no dia do pedido. As camélias tinham menos flores agora. A cidade se espalhava além dos muros, com suas buzinas, suas janelas acesas, pessoas chegando em casa.
+
+Ela fechou os olhos e tentou lembrar a voz de Augusto dizendo seu nome. Por um instante, ouviu com nitidez o bom dia baixo, a ironia cansada, o modo como pronunciara minha mulher.
+
+Abriu os olhos depressa, assustada com a possibilidade de esquecer.
+
+Depois buscou o telefone. Encontrou um áudio antigo, enviado numa noite em que ela saíra da aula mais tarde.
+
+Estou acordado. Vai com cuidado. Tem café, se você ainda quiser.
+
+Helena ouviu uma vez. Depois outra. Na terceira, levou o aparelho ao peito e deixou a saudade fazer o que precisava.
+
+Quando o choro acalmou, o café estava frio.
+
+Ela olhou o banco, o caminho limpo, o vaso de alecrim perto da parede. Augusto não voltaria. Nenhum cuidado, nenhuma flor, nenhuma intensidade de amor alteraria isso. A dor era tão grande que ainda não sabia como carregá-la, mas já conseguia reconhecer, dentro dela, os dias em que tinham sido felizes.
+
+Não apenas a despedida. A risada na chuva. O primeiro beijo. A xícara de borda azul. O marido perguntando pela prova.
+
+Helena se levantou quando Lurdes a chamou para jantar. Antes de entrar, acendeu a luz da varanda. Fez isso porque estava escuro, porque ainda morava ali, porque o caminho precisava de luz.
+
+Na escrivaninha, mais tarde, abriu uma página nova do caderno.
+
+Escreveu a data. Ficou um tempo olhando o espaço em branco e, por fim, começou:
+
+Hoje cuidei do alecrim. Você ia gostar de saber.
+
+Parou, enxugou o rosto e continuou escrevendo.
+
+A xícara de Augusto permaneceu no armário. Helena não sabia quando conseguiria guardá-la em outro lugar, ou se algum dia iria querer.
+
+Naquela noite, porém, terminou o café da sua.
+
+FIM
