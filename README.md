@@ -17,6 +17,7 @@ Romance curto em seis capítulos, baseado no argumento preservado em `original/p
 
 Texto e arte frontal gerados com IA a partir da proposta do usuário. Nenhuma publicação comercial realizada. PDF de leitura e capa conceitual não equivalem a arquivos aprovados para impressão. EPUB sem teste em EPUBCheck ou Kindle Previewer.
 
-## Backup público pendente
+## Backup público
 
-A autorização permanente do usuário para repositório público foi respeitada como escopo, mas a credencial da GitHub CLI está inválida. Há histórico Git local; criação do remoto público e push não concluídos. Restaurar a autenticação com `gh auth login`, conferir se já existe remoto próprio desta obra, criar ou reutilizar o repositório correto e enviar os commits locais. Não armazenar credenciais nos arquivos. Verificar SHA no remoto e visibilidade pública antes de marcar como sincronizado.
+Repositório da obra: https://github.com/vorneermel/enquanto-houver-jardim . Histórico e arquivos enviados em 10/10/2026. Originais, seis capítulos, manuscrito, PDF, EPUB e capas preservados.
+

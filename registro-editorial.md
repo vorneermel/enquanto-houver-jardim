@@ -47,3 +47,6 @@ Fontes oficiais consultadas em 08/10/2026: guia de formatação https://kdp.amaz
 ## Backup
 
 Repositório Git próprio inicializado nesta pasta. Primeiro estágio preservado no commit 8156f2a. A GitHub CLI informou token inválido para a conta configurada, vorneermel. Ferramentas de conector descobertas não oferecem criação de repositório neste ambiente. Criação do repositório público e push não foram concluídos. Após restaurar a autenticação GitHub, criar/reutilizar o remoto da obra e enviar os commits existentes; verificar SHA remoto e visibilidade antes de declarar sucesso. Nenhum token foi registrado.
+
+Atualização em 10/10/2026: autenticação confirmada com acesso à rede; repositório público próprio criado em https://github.com/vorneermel/enquanto-houver-jardim e histórico enviado com sucesso. A pendência descrita acima foi resolvida.
+
